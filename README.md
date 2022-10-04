@@ -12,4 +12,4 @@ Source: Pexels, Ben Kirby
 #### Tower bridge is an iconic British Monument known by many. One can take images of the bridge. The history of this bridge is fun; it includes a rich history of the british royalty and their bad acts. 
 Source: Pexels, Chris Schippers
 
-### Im too lazy to share more. Check out https://www.pexels.com/search/london/ to see more, copyright free pictures of London. 
+### Im too lazy to share more. Check out (https://www.pexels.com/search/london/) to see more, copyright free pictures of London. 
